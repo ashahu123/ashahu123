@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @ashahu123
+- 👋 Hi, I’m Aniket shahu
 - 👀 I’m interested in learning new things 
 - 📫 How to reach me at aniketshahu004@gmail.com
 <!---
